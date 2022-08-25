@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @100kitaizzevj
+- 👀 I’m interested in portal games speedruning
